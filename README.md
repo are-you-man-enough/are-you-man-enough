@@ -1,17 +1,3 @@
 ## 𝒞𝒪𝒪𝐿𝐸𝒮𝒯 𝒦𝐼𝒟 𝐼𝒩 𝒯𝐻𝐸 𝒲𝒪𝑅𝐿𝒟.
 
-# BYI/DNI
-
-I go by Bobette , C00lkid or wtv character im using son
-
-I'm ᴛʀᴀɴꜱꜰᴇᴍ ᴀɴᴅ ʟᴇꜱʙɪᴀɴ , missgendering as a mistake is okay but on purpose , youre 𝐛𝐥𝐨𝐜𝐤𝐞𝐝 𝐚𝐧𝐝 𝐡𝐢𝐝𝐝𝐞𝐧.
-
-# IWC/THIN ICE
-
-Calling me slurs and swear words , just . . . 𝙒𝙝𝙖𝙩'𝙨 𝙩𝙝𝙚 𝙥𝙪𝙧𝙥𝙤𝙨𝙚 𝙤𝙛 𝙞𝙩? (unless friend, since they joke alot with that)
-
-Basic dni criteria
-
-𝙁𝙊𝙍𝙎𝘼𝙆𝙀𝙉 𝙁𝘼𝙉𝙎 𝙁𝙊𝙍𝙎𝘼𝙆𝙀𝙉 𝙁𝘼𝙉𝙎 𝙁𝙊𝙍𝙎𝘼𝙆𝙀𝙉 𝙁𝘼𝙉𝙎 𝙁𝙊𝙍𝙎𝘼𝙆𝙀𝙉 𝙁𝘼𝙉𝙎. (unless you nice hi hello)
-
-## thats it bye adios
+[04. Here I come (Milestone 3-4 c00lkidd Chase Theme).mp3](https://github.com/user-attachments/files/24545821/04.Here.I.come.Milestone.3-4.c00lkidd.Chase.Theme.mp3)
