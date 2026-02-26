@@ -14,5 +14,4 @@
 
          i LOVE mafioso x coolkid you could tell
 
-OWNER OF THE ACCOUNT:
-my GitHub isn't loading so I'm gonna say this, I'm always and mostly rude as a joke so sorry abt that
+[forgot to link my pronouns.cc hi](https://pronouns.cc/@scarletting)
